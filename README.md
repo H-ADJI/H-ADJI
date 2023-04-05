@@ -7,4 +7,4 @@
 
 - 👯 I’m looking to collaborate on building interesting software.
 - ✨ Turning ideas into reality. 
-- 📫 How to reach me: khalil.o.3.lach@gmail.com
+- 📫 How to reach me: h-adji_tech@proton.me
